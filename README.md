@@ -1,1 +1,1 @@
-👋 I'm raceist and home and phobick
+👋 I'm the guy that made the STUPID DOXBIN SONGS
